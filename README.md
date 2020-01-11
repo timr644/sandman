@@ -1,0 +1,2 @@
+# sandman
+sample mgtow page
